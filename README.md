@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Doreeen
 - 👩🏼‍🎓 Student Arts & Economics 
-- 👀 I’m interested in social movements, the green movement, everything coffee and anything that my brain's hyperfixated on🤩
+- 👀 I’m interested in social movements, the green movement, everything coffee, anything that my brain's hyperfixated on🤩
 - 🌠 I love to start my own social enterprise someday!
 
 
